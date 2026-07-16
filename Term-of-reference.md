@@ -1,11 +1,10 @@
-Terms of Reference and Core Team Synergy Ethos
+# Nilai-Nilai of Reference and Core Team Synergy Ethos
 
 Kerangka Kerja dan Etos Tim QSDG (Quorum Sovereign Digital Genesis)
 
 Membangun Secara Mandiri, Menjalankan Secara Kolektif
 
-QSDG dibangun dengan keyakinan bahwa karya besar tidak lahir dari beban, melainkan dari semangat kebersamaan. Setiap anggota bukan sekadar pelaksana tugas, tetapi bagian dari pemilik cita-cita yang sedang membangun sebuah warisan untuk masa depan.
-
+QSDG dibangun dengan keyakinan bahwa karya besar tidak lahir dari beban, melainkan dari semangat kebersamaan. Setiap anggota bukan sekadar pelaksana tugas, tetapi bagian dari pemilik cita-cita yang sedang membangun sebuah warisan untuk masa deNilai
 Nilai-Nilai Dasar
 
 1. Mandiri dalam Fondasi
